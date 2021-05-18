@@ -15,7 +15,7 @@ A Norwegianized take on the mudslide, perfect for the national holiday
 
 ## Instructions
 
-1. Add Båtis, Kahlua, Baileys and vodka in a blender, blend until smooth.
+1. Add Båtis, Kahlua, Baileys, vodka and heavy cream in a blender, blend until smooth.
 2. Add espresso and some ice cubes to a shaker, shake well to cool the espresso.
-3. Pour the espresso into the blender together with ice cubes and heavy cream, blend until smooth.
-4. Pour into cocktail glasses, and sprinkle some chocolate power on top.
+3. Pour the espresso into the blender together with ice cubes, blend until smooth.
+4. Pour into cocktail glasses, and sprinkle some chocolate powder on top.
